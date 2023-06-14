@@ -1,3 +1,3 @@
 ### UnfamiliarLegacy
 
-Discord **Mikee#0055**
+Discord **mikee0055**
